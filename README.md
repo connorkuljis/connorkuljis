@@ -1,4 +1,4 @@
-I’m Connor Software Engineering student based in perth
+I’m Connor, a Software Engineering student based in perth
 
 How to reach me: conkuljis@gmail.com
 
